@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cy9ic
-- 👀 Exploring the IT world.
+- 👀 Cybersec ^-^
 - 🌱 
 - 💞️ 
 
