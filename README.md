@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @cy9ic
-- 👀 Cybersec ^-^
+- 👋 Hi, I’m Harkaran Singh
+- 👀 Cybersec geek ^-^
 - 🌱 
 - 💞️ 
 
